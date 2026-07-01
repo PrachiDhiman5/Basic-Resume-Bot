@@ -17,7 +17,7 @@ PRACHI'S RESUME
 
 CONTACT
 -------
-Mobile: +91-9034461378
+Mobile: +91-9034.....
 
 
 SKILLS
